@@ -5,6 +5,6 @@
 
 
 
-If You Looking this Preview, it means my index still restarting..
+If You Looking this thing, it means my index still restarting..
 
 That's All 
